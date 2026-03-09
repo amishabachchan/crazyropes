@@ -1,4 +1,4 @@
-Hey there! 👋 I'm Crazyropes.
+Hey there! 👋 I'm Amisha.
 
 Just a curious soul learning to turn logic into something meaningful ✨
 
